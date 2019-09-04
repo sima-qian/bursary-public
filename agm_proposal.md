@@ -16,4 +16,4 @@
 - Founders and Coders staff will **publicise** this charity within the alumni network, for example through the monthly newsletter, and **encourage donations** to this bursary fund.
 - The pilot scheme will be **limited in scope** to two cohorts.
 
-_* The first cohort to benefit from the bursary scheme will likely be FAC19 or FAC20, rather than FAC18 as originally envisioned.
+_* The first cohort to benefit from the bursary scheme will likely be FAC19 or FAC20, rather than FAC18 as originally envisioned._
